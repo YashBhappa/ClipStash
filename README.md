@@ -1,0 +1,8 @@
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/3907157b-fedb-4708-993f-b45139e5c206)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/8cc8c222-be3c-41b8-9486-146f951b684b)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/13bab1fb-7cc8-4ab0-90c4-8339bf4fb0d4)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/b8d857b9-9115-424e-b8cc-83f1689dcf57)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/18b61127-876d-4f37-a538-d1e866cc8b31)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/0be2ff19-467b-4592-b830-f037fb5ddd51)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/9ebd4acc-5c13-49f2-8fea-93819a89455e)
+![image](https://github.com/YashBhappa/ClipStash/assets/78205040/7b6d1e18-cae8-4f1e-875a-83deb09f1aaa)
